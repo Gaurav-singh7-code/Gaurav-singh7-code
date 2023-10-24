@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **gaurav.singh2021a@vitstudent.ac.in**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1nqKMyHUBkE814ykedIlHFvt5HTiVjv5O/view?usp=sharing](https://drive.google.com/file/d/1nqKMyHUBkE814ykedIlHFvt5HTiVjv5O/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1nqKMyHUBkE814ykedIlHFvt5HTiVjv5O/view?usp=sharing](https://drive.google.com/file/d/1K9qKvl33EaitFrGr9LAFu1nhgqDfISok/view)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
